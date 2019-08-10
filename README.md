@@ -1,4 +1,4 @@
-# Combating the Spread of Misinformation and Extremism in a Networked World
+# Combating the Spread of Misinformation and Violence in a Networked World
 
 
 ## Background:  
